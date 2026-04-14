@@ -1,0 +1,1 @@
+# articles-camisa-cbf-2026-copa
